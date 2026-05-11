@@ -4,7 +4,7 @@
 
 **Integrante:** Mateo Aguirre Duque — mateo.aguirre@udea.edu.co — CC 1152472114
 
-**Video:** https://youtu.be/nfuaGV5BI1s
+**Video:** https://youtu.be/vs6UvcXdX_Q
 
 ---
 
